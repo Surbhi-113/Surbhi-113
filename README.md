@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **surbhisinha4418@gmail.com**
 
-- 📄 Know about my experiences [https://in.docworkspace.com/d/sIIj7yuVWwfnurQY](https://in.docworkspace.com/d/sIIj7yuVWwfnurQY)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
